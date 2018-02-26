@@ -8,4 +8,4 @@ Jirxa was here !
 
 Now, let's begin to choose who is who in order to make a skit and maybe a panel even ! 8D
 
-Ukiyo : I'm Scorpius Hyperion Malfoy. Such an awesome cutie.
+Ukiyo : I'm Scorpius Hyperion Malfoy. Such an awesome (nerdy) cutie.
